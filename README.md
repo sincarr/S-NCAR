@@ -1,0 +1,2 @@
+# S-NCAR
+TİCARET
